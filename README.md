@@ -1,2 +1,2 @@
 <p align="center">
-  <img src="https://media1.tenor.com/m/ynzUshFjj1sAAAAd/iu-aesun.gif">
+  <img src="https://media1.tenor.com/m/PiXolmolop8AAAAd/earl-sweatshirt-vince-staples.gif" alt="hey! shhh">
